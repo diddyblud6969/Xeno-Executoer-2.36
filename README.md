@@ -1,1 +1,1 @@
-If download does not working download it from the key on the right.
+Make sure you allow it on your pc and stuff because its a roblox executor
